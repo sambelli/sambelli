@@ -1,0 +1,5 @@
+- 👋 oi,eu sou @sambelli
+- 👀 eu tenho intereses em arte,desenho,musica etc...
+- 🌱 estou aprendendo no momento a mecher nesse negocio aqui
+- 💞️ estou querendo colaborar com essa maquina e a criatura do meu lado
+- 📫 por favor nao chegue em mim, ou mande para isabelli.pavaneli@escola.pr.gov.br
